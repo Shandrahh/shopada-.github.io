@@ -1,1 +1,0 @@
-# shopada-.github.io
